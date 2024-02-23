@@ -1,0 +1,2 @@
+# Fuckdiscord
+fuck discord
